@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @FenkoMarshmallow (Call me Fenko for short) 
+- 👋 Hi, I’m @FenkoMarshmallow (Call me Linz for short) 
 - 🇻🇳 I'm Asian (Vietnamese) nice to meet y'all
-- 💖 17yl/🖤🤍💜
+- 💖 20yl/🖤🤍💜
